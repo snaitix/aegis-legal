@@ -98,4 +98,4 @@ reflected by updating the "Last updated" date above.
 
 ## Contact
 
-For privacy-related questions, contact: **mirik24348@gmail.com**
+For privacy-related questions, contact: **cinemaassist@gmail.com**

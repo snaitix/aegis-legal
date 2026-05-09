@@ -102,4 +102,4 @@ laws shall prevail.
 
 ## 13. Contact
 
-For questions about these Terms, contact: **mirik24348@gmail.com**
+For questions about these Terms, contact: **cinemaassist@gmail.com**
